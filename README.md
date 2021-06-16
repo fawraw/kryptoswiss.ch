@@ -1,0 +1,1 @@
+# kryptoswiss.ch
